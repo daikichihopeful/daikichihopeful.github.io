@@ -1,0 +1,1 @@
+# daikichihopeful.github.io
